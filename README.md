@@ -2,7 +2,7 @@
 **Digital Product Designer & Frontend Developer**  
 📍 Jakarta Timur, Indonesia | 📞 +62 813-6642-5997 
 ✉️ emerson2315.sma2@sma.prestasiprima.sch.id | 🔗 [linkedin.com/in/nama-anda](https://linkedin.com/in/nama-anda)  
-💻 [https://github.com/Emer145836](https://github.com/Emer145836) | 🌐 [namaanda.com](https://namaanda.com)
+💻 [https://github.com/Emer145836](https://github.com/Emer145836) | 🌐 [https://emer145836.github.io/Portofolio-Emerson/](https://emer145836.github.io/Portofolio-Emerson/)
 
 ---
 
